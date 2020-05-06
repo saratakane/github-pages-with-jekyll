@@ -1,3 +1,1 @@
-# 
 
-Thank you for being here.
